@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **courses**
 
-- 📫 How to reach me **laibaaltaf07@gmail.com**
+- 📫 How to reach me **tayyabaaltaf970@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
